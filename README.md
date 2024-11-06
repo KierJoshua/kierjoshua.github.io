@@ -1,1 +1,0 @@
-# kierjoshua.github.io
